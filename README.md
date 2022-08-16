@@ -25,7 +25,7 @@ To comply with applicable laws, safety, and property, and respond to lawful requ
 If you post content on our social media channels, your participation may be shared on our website or our channels
 We generally retain information for so long as it is relevant to serve you. Data may persist in copies made for backup purposes.
 
-IotElevator will respect your wishes not to receive marketing communications. You can change your marketing preferences at any time by contacting us at doanquyetchien1986@gmail.com
+IotElevator will respect your wishes not to receive marketing communications. You can change your marketing preferences at any time by contacting us at lamanh.duan@gmail.com or doanquyetchien1986@gmail.com
 
 **How to delete your information?**
 
@@ -62,6 +62,6 @@ If we decide to change our privacy policy, we will post those changes on this pa
 
 **Contact Us**
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at doanquyetchien1986@gmail.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at lamanh.duan@gmail.com or doanquyetchien1986@gmail.com.
 Webside: https://lae.com.vn
 
